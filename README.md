@@ -1,1 +1,0 @@
-# calculadora-colaborativa-web--bela-
